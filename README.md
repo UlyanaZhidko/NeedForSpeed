@@ -1,1 +1,1 @@
-"# NeedForSpeed - £Æ≠ÆÁ≠†Ô ®£‡† ≠† JS" 
+"# NeedForSpeed - –≥–æ–Ω–æ—á–Ω–∞—è –∏–≥—Ä–∞ –Ω–∞ JS" 
